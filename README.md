@@ -1,0 +1,1 @@
+# pamiw_zad2
